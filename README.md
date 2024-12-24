@@ -1,0 +1,2 @@
+# Motivational-quotes
+MOTIVATIONAL QUOTES
